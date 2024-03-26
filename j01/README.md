@@ -1,6 +1,8 @@
 # First Journal Entry... Dancing Around Norman Doors
 Gigi Hussussian
+
 26 March 2024
+
 My experience with the gym doors located at the WREC has made me notice all Norman Doors that I have ever or become encountered with. These doors are explained best by Don Norman, who coined the reference due to the poorly designed doors manufactured that confuse people. The main problem, the affordances do not match the action required, contributing to confusion of pushing or pulling. 
 My own person experience battling the Norman Door starts with the WREC's studio doors. I use these doors every other day for practice and I still happen to pull or push incorrectly. So, I walk up the stairs and as I approached the entrance of the dance studio, I encountered a familiar obstacle, the Norman Door. Standing before me was the sleek, modern door, the two handles close together offering no hints on how to proceed. 
 Goal: My goal was simple, to enter the studio uninterrupted with only one push or pull, ready to enter into the studio and dance without any unnecessary delays or confusion.
